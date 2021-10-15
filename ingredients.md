@@ -1,0 +1,1 @@
+Grab 1 extra-large potato, 2 large potatoes or 3 medium potatoes equalling about 315 grams. Rinse well in water and then peel the potato.
